@@ -14,10 +14,15 @@
   One of my favorite books about multicultural pedagogy is Geneva Gay’s Culturally Responsive Teaching. In this book, Gay utilizes the form of storytelling to illustrate culturally responsive teaching. As a Chinese American immigrant, I develop a strong empathy for this book. Many scenarios of color students who struggled in school in this book were similar to my own experience. I was able to learn many scaffolding strategies and ponder on how to utilize my own experience to create a culturally inclusive environment for my future students. I will incorporate multicultural activities in my lesson, for example, songs or games from other countries. I will work together with their parents to learn more about their countries’ culture and create a scaffolding strategy that best facilitates students’ learning processes.   
 
 
+
+
 ## Philosophy
 
   My experience growing up as a Chinese American immigrant made me want to foster a culturally inclusive learning environment for my future students through music.  Bruno Nettl once stated that “Many of the world’s peoples express the important things about their lives and their culture through music.” I believe that music is beyond notes and rhythm; It is an "aesthetic experience” that directly reflects on children’s individuality, culture, and beliefs. Moreover, music can create a cultural connection. As globalization increases its impact, world music gained enormous popularity. We are able to acquire access to traditional folk music around the world. Through learning music from the cultural frames of reference, it creates a connection between the lesson content and students, which makes learning more effective and meaningful.
 
   I believe music educators do not merely teach music; we teach and learn about our students through musicking (music-making). All children possess the capacity to sense and make music. Children make music through their nature: play and movement; their world is full of imagination. Moreover, every student is a unique individual. Children have different personalities and ways of thinking, and therefore the way they express their musicality is also distinct. However, children’s individualities and creativities are what make the music colorful. Hence, I believe the first step in music education should not start by learning music notation but fostering children‘s expressive musicality through their nature. 
 
-<a href="file.txt">Download File</a>
+
+## Lesson Plan
+
+<a href="upload/Differentiation Lesson Plan.docx">Differentiation Lesson Plan</a>
