@@ -1,5 +1,6 @@
 ## Intro
 
+![image](profile.jpg)
 
   Mei Jiang is a junior music education major at Central Connecticut State University. She studies flute under Jill Maurer-Davis. She serves as the Head of Public Relations of the National Association for Music Education CCSU Chapter. She devoted herself in music making and strove to create a culturally inclusive learning environment for her future students.
 
