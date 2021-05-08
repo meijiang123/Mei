@@ -26,15 +26,22 @@
 ## Lesson Plan
 
 <a href="upload/Differentiation Lesson Plan.docx">Differentiation Lesson Plan</a>
+
 <a href="upload/ELL Lesson Plan.docx">ELL Lesson Plan</a>
+
 <a href="upload/Google Earth Lesson Plan .docx">Google Earth Lesson Plan</a>
+
 <a href="upload/Google Earth Project.docx">Google Earth Project</a>
+
 <a href="upload/Lesson Plan Towards Thriving.docx">Lesson Plan Towards Thriving</a>
+
 <a href="upload/MUS 316 Lesson Plan.docx">MUS 316 Lesson Plan</a>
 
 
 ## Work & Arrangement
 
 <a href="arrangement/Chinese_Folk_Music_Collection (1).pdf">Chinese Folk Music Collection</a>
+
 <a href="arrangement/Merry_Go_Round.pdf">Merry Go Round</a>
+
 <a href="arrangement/REVISED_PUEBLO_ROUND_DANCE_2.pdf">REVISED PUEBLO ROUND DANCE</a>
